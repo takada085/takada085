@@ -1,1 +1,1 @@
-oi, sou gay
+~ 🏝️ takada 🏝️ ~
